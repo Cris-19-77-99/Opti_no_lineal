@@ -1,1 +1,0 @@
-# Opti_no_lineal
